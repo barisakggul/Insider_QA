@@ -1,0 +1,1 @@
+ Otomasyon test konusuna yeni adım atmış olmama rağmen bu alana yoğun bir ilgim var ve bu görev sayesinde kendimi hızlıca geliştirme fırsatı buldum. Kısıtlı sürede elimden gelenin en iyisini yapmaya çalıştım.
